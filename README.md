@@ -1,5 +1,5 @@
 ## Resume
-Professional with solid experience in administrative management, customer service, 
+Professional with experience in administrative management, customer service, 
 and team leadership, working in sectors such as retail, services, and supplier 
 management. Currently working as an Administrative Supplier Management 
 Assistant at Renner, responsible for contract administration, occupancy costs, and 
